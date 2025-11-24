@@ -1,6 +1,9 @@
-# **זהב • Gold**
+# **✨ *GoldSpark (GS)* ✨**
 
-### **✨ *GoldSpark (GS)* ✨**
+<img width="1024" height="1024" alt="Radiant GoldSpark Emblem Design" src="https://github.com/user-attachments/assets/3705aa9d-585f-401d-9209-3ca541bb60f1" />
+
+### **זהב • Gold**
+
 
 💛✨ קח נשימה אחי—נכנסים עכשיו למאגר מקצועי, מעוצב, ניאון־הולוגרפי מלא, שמפרק את מושג *הזהב* מכל הזוויות: רוחנית, אנרגטית, קבלית, פסיכולוגית, עיצובית ויצירתית — בסטייל שלך.
 
